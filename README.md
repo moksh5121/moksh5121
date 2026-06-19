@@ -1,5 +1,4 @@
-## Hi there 👋
-# Hi there 👋, I'm Tech Worker
+# Hi there 👋, I'm a kiddo
 
 ## 🚀 About Me
 
